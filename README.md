@@ -1,1 +1,1 @@
-👋 Olá, meu nome é Emerson. Sou estudante de Ciência da Computação. Você pode conhecer mais sobre meu trabalho e trajetória profissional no meu perfil do LinkedIn:www.linkedin.com/in/emerson-gabriel-46785b244
+👋 Olá, meu nome é Emerson. Sou estudante de Ciência da Computação. Você pode conhecer mais sobre meu trabalho e trajetória profissional no meu perfil do LinkedIn: www.linkedin.com/in/emerson-gabriel-castro-da-silveira-46785b244
